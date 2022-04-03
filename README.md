@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nzkii
+- 👀 I’m interested in hacking
+- 🌱 I’m currently learning the node.js
+- 💞️ I’m looking to collaborate on discord and web
+- 📫 How to reach me : feur#0001 ; https://twitter.com/ImLoveXVI
